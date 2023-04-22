@@ -8,8 +8,7 @@ Some information about you!
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
-
+if u like me just dm me :)
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[rayyan.2003@hotmail.com](mailto:email@domain.com)
